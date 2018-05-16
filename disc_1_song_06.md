@@ -8,7 +8,7 @@ bungalow bill
 
 when out tiger hunting with his elephant and gun
 in case of accidents he always took his mum
-who's the only *inaudibile* bullet headed sex and mothers song
+who's the only *inaudible* bullet headed sex and mothers song
 
 all the children sing
 
@@ -21,8 +21,8 @@ what did you kill
 bungalow bill
 
 deep in the jungle where the mighty tiger lie
-bill and his elephants were taken by suprise
-shoot *inaudibile* marbles at them right between the eyes
+bill and his elephants were taken by surprise
+shoot *inaudible* marbles at them right between the eyes
 
 all the children sing
 
